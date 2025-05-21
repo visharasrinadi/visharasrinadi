@@ -15,7 +15,7 @@
 
 - I'm currently open for new opportunities.
   
-- How to reach me: [shehangarusinghe@gmail.com](mailto:shehangarusinghe@gmail.com)
+- How to reach me: [visharasrinadi@gmail.com](visharasrinadi@gmail.com)
 
 <br><br>
 
